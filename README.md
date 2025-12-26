@@ -1,1 +1,1 @@
-# Model-statystyczny-samob-jstw-w-Polsce.-Lata-2017-2024_project
+# Model-statystyczny-samobójstw-w-Polsce.-Lata-2017-2024_project
